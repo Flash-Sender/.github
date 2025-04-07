@@ -98,6 +98,6 @@ Flash USDT remains the **most dominant stablecoin**, offering stability, liquidi
 ---
 
 ### **Follow for More Crypto Insights!**  
-📢 ![**Telegram**](https://t.me/flashdealer) |
+📢 [**Telegram**](https://t.me/flashdealer) |
 
 ![hash Tag](#USDT #Tether #Stablecoin #Crypto #Blockchain #DeFi #Bitcoin)
