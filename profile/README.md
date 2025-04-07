@@ -1,4 +1,5 @@
 ## Flash USDT Tether:  
+![Flash Soft](https://github.com/user-attachments/assets/737efe1c-626b-412a-98ed-d3b6218135bf)
 
 ## **Introduction**  
 In the volatile world of cryptocurrencies, stablecoins like **Flash USDT (Tether)** play a crucial role by providing price stability.
