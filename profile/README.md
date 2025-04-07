@@ -42,6 +42,11 @@ Flash USDT Tether maintains its peg by holding **reserves equivalent to the circ
 
 https://github.com/user-attachments/assets/1e430827-1dcb-41c1-b899-1e9a85a0bd20
 
+---
+
+## **BUY APP**
+
+[BUY NOW](https://t.me/flashdealer)
 
 ---
 
